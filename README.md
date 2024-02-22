@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @binhchienthn9
+- 👀 I’m interested in crypto
+- 🌱 I’m currently learning web3
